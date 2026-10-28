@@ -1,0 +1,2 @@
+# Sanskrit
+Sanskrit syllabus
